@@ -1,6 +1,6 @@
 # O Sofrimento é uma Escolha?
 ## Reflexão e Mudança de Perspectiva sobre as Dificuldades
-![image](https://github.com/zyan-scivi/blog/assets/162216237/5afdba22-7219-452c-a611-ded37b5be5d7)
+![image](https://github.com/zyan-scivi/blog/assets/162216237/faab532e-e369-4b4b-956a-6bdf56176c89)
 
 Em meio ao caos da vida cotidiana, muitas vezes nos encontramos perdidos em um mar de expectativas e responsabilidades, sem saber ao certo quem somos ou qual é o nosso propósito.
 
